@@ -14,6 +14,6 @@ Group Number:
 32
 
 Individual Submitter:
-20101022 Name Farjana Alam
+20101022 Farjana Alam
 
 I also correctly uploaded slide.PPT and report.PDF here.
